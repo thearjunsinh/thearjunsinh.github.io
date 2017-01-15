@@ -1,0 +1,13 @@
+# Site settings
+title: Best Android Strategy Games
+description: > 
+  This website is dedicated to Android Strategy Games Lover, Here you will get a list of top trading strategy games for android.
+baseurl: "" # the subpath of your site, e.g. /blog
+url: "https://bestandroidstrategygames.com" # the base hostname & protocol for your site
+
+# Build settings
+highlighter: pygments
+markdown: kramdown
+permalink: none
+  
+  
