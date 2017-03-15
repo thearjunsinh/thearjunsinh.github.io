@@ -16,17 +16,17 @@ King of Avalon is real time MMO strategy game that played by million of game lov
 
 ## Screenshot ##
 
-<a href="https://3.bp.blogspot.com/-QBWbT0NfW-M/WMjuBjfruUI/AAAAAAAAAAM/wBIeo--ZnQwM4U5oFInvIC4dqUfyF4dNACLcB/s1600/king%2Bof%2Bavalon.jpg"><img height="215" src="https://3.bp.blogspot.com/-QBWbT0NfW-M/WMjuBjfruUI/AAAAAAAAAAM/wBIeo--ZnQwM4U5oFInvIC4dqUfyF4dNACLcB/s400/king%2Bof%2Bavalon.jpg" width="400" /></a><br/>
+<a href="https://3.bp.blogspot.com/-QBWbT0NfW-M/WMjuBjfruUI/AAAAAAAAAAM/wBIeo--ZnQwM4U5oFInvIC4dqUfyF4dNACLcB/s1600/king%2Bof%2Bavalon.jpg"><img alt="King Of Avalon - Dragon Warfare review" height="215" src="https://3.bp.blogspot.com/-QBWbT0NfW-M/WMjuBjfruUI/AAAAAAAAAAM/wBIeo--ZnQwM4U5oFInvIC4dqUfyF4dNACLcB/s400/king%2Bof%2Bavalon.jpg" width="400" /></a><br/>
 
-<a href="https://1.bp.blogspot.com/-Lx3y-Vi-ak0/WMjuLIuTPYI/AAAAAAAAAAQ/BTridt1vz1wL-Q8Sv6aJoff4fO0xy053QCLcB/s1600/king-of-avalon-dragon-koa.jpg"><img height="236" src="https://1.bp.blogspot.com/-Lx3y-Vi-ak0/WMjuLIuTPYI/AAAAAAAAAAQ/BTridt1vz1wL-Q8Sv6aJoff4fO0xy053QCLcB/s400/king-of-avalon-dragon-koa.jpg" width="400" /></a><br/>
+<a href="https://1.bp.blogspot.com/-Lx3y-Vi-ak0/WMjuLIuTPYI/AAAAAAAAAAQ/BTridt1vz1wL-Q8Sv6aJoff4fO0xy053QCLcB/s1600/king-of-avalon-dragon-koa.jpg"><img alt="king of avalon dragon koa" height="236" src="https://1.bp.blogspot.com/-Lx3y-Vi-ak0/WMjuLIuTPYI/AAAAAAAAAAQ/BTridt1vz1wL-Q8Sv6aJoff4fO0xy053QCLcB/s400/king-of-avalon-dragon-koa.jpg" width="400" /></a><br/>
 
-<a href="https://3.bp.blogspot.com/-2z5yRy9hiVk/WMjufwJvcrI/AAAAAAAAAAU/4FhX2jYPfe0KrBR4gG-QFDke28jeuoJUgCLcB/s1600/king-of-avalon-build-empire.jpg"><img height="300" src="https://3.bp.blogspot.com/-2z5yRy9hiVk/WMjufwJvcrI/AAAAAAAAAAU/4FhX2jYPfe0KrBR4gG-QFDke28jeuoJUgCLcB/s400/king-of-avalon-build-empire.jpg" width="400" /></a><br/>
+<a href="https://3.bp.blogspot.com/-2z5yRy9hiVk/WMjufwJvcrI/AAAAAAAAAAU/4FhX2jYPfe0KrBR4gG-QFDke28jeuoJUgCLcB/s1600/king-of-avalon-build-empire.jpg"><img alt="king of avalon build empire" height="300" src="https://3.bp.blogspot.com/-2z5yRy9hiVk/WMjufwJvcrI/AAAAAAAAAAU/4FhX2jYPfe0KrBR4gG-QFDke28jeuoJUgCLcB/s400/king-of-avalon-build-empire.jpg" width="400" /></a><br/>
 
-<a href="https://2.bp.blogspot.com/-X8d21pcM7d4/WMjutHFHstI/AAAAAAAAAAc/3wbCgDvroyoZxcbu6YwrYGHKemy59f_SACLcB/s1600/king-of-avalon-dragon-strategy.jpg"><img height="300" src="https://2.bp.blogspot.com/-X8d21pcM7d4/WMjutHFHstI/AAAAAAAAAAc/3wbCgDvroyoZxcbu6YwrYGHKemy59f_SACLcB/s400/king-of-avalon-dragon-strategy.jpg" width="400" /></a><br/>
+<a href="https://2.bp.blogspot.com/-X8d21pcM7d4/WMjutHFHstI/AAAAAAAAAAc/3wbCgDvroyoZxcbu6YwrYGHKemy59f_SACLcB/s1600/king-of-avalon-dragon-strategy.jpg"><img alt="king of avalon - train your dragons" height="300" src="https://2.bp.blogspot.com/-X8d21pcM7d4/WMjutHFHstI/AAAAAAAAAAc/3wbCgDvroyoZxcbu6YwrYGHKemy59f_SACLcB/s400/king-of-avalon-dragon-strategy.jpg" width="400" /></a><br/>
 
-<a href="https://3.bp.blogspot.com/-t7DRZv-c0Ek/WMjuf2ZhSQI/AAAAAAAAAAY/jbCbG5ClBHUBKHhlzf4jZ8He2Smf48SdQCLcB/s1600/king-of-avalon-bow-to-no-one.jpg"><img height="300" src="https://3.bp.blogspot.com/-t7DRZv-c0Ek/WMjuf2ZhSQI/AAAAAAAAAAY/jbCbG5ClBHUBKHhlzf4jZ8He2Smf48SdQCLcB/s400/king-of-avalon-bow-to-no-one.jpg" width="400" /></a><br/>
+<a href="https://3.bp.blogspot.com/-t7DRZv-c0Ek/WMjuf2ZhSQI/AAAAAAAAAAY/jbCbG5ClBHUBKHhlzf4jZ8He2Smf48SdQCLcB/s1600/king-of-avalon-bow-to-no-one.jpg"><img alt="king of avalon - attack to your enemies empire " height="300" src="https://3.bp.blogspot.com/-t7DRZv-c0Ek/WMjuf2ZhSQI/AAAAAAAAAAY/jbCbG5ClBHUBKHhlzf4jZ8He2Smf48SdQCLcB/s400/king-of-avalon-bow-to-no-one.jpg" width="400" /></a><br/>
 
-<a href="https://1.bp.blogspot.com/-5YbeMVeqDjg/WMjutGdIeVI/AAAAAAAAAAg/n0Pg9uDFdUgc9B-t1cyUZ6YgfexS6e0KwCLcB/s1600/king-of-avalon-end-of-arthur.jpg"><img height="300" src="https://1.bp.blogspot.com/-5YbeMVeqDjg/WMjutGdIeVI/AAAAAAAAAAg/n0Pg9uDFdUgc9B-t1cyUZ6YgfexS6e0KwCLcB/s400/king-of-avalon-end-of-arthur.jpg" width="400" /></a><br/>
+<a href="https://1.bp.blogspot.com/-5YbeMVeqDjg/WMjutGdIeVI/AAAAAAAAAAg/n0Pg9uDFdUgc9B-t1cyUZ6YgfexS6e0KwCLcB/s1600/king-of-avalon-end-of-arthur.jpg"><img alt="king of avalon - get victory and become a legendary king" height="300" src="https://1.bp.blogspot.com/-5YbeMVeqDjg/WMjutGdIeVI/AAAAAAAAAAg/n0Pg9uDFdUgc9B-t1cyUZ6YgfexS6e0KwCLcB/s400/king-of-avalon-end-of-arthur.jpg" width="400" /></a><br/>
 
 
 ## Requirement to play King of Avalon ##
